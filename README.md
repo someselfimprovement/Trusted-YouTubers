@@ -1,4 +1,4 @@
-# Trusted-YouTubers
+# Trusted YouTubers
 
 Hi! Thank you for the interest in self improvement, below is a list of trusted YouTubers, or in other words, YouTubers you can listen to if you want to have self improvement!
 
